@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @danielcampetti
+- 👀 I’m interested in develop new skills.
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on the comunity
+- 📫 How to reach me new heights
